@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Hi there , I'm Kamalesh Vijayakumar<br><br>👨🏻‍🎓 B.Tech AI and DS Engineering <br>🎓Erode Sengunthar Engineering College - Erode.<br>🎯 I'm a Goal-driven  and passionate AI practitioner.<br>✨ I am a Technical Enthusiast who wishes to explore more and is keen to contribute more to a cause.<br>
+🚀 Hi there , I'm Kamalesh Vijayakumar<br>👨🏻‍🎓 B.Tech AI and DS Engineering <br>🎓Erode Sengunthar Engineering College - Erode.<br>🎯 I'm a Goal-driven  and passionate AI practitioner.<br>✨ I am a Technical Enthusiast who wishes to explore more and is keen to contribute more to a cause.<br>
 
 
 ## 🌐 Socials:
